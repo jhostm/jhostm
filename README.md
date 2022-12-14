@@ -11,6 +11,8 @@ Aqui está um pouco sobre minha vida :
 - 📫 vem ver o poder de fogo
 - 😄 oi tem a 660, R1 e varias hornet
 - ⚡ de 762 e mochila da Redley
+
 🐊 [whats is this melody😱](https://www.youtube.com/watch?v=rIkDNCIz6as)
-![👁🐈](zoi de gato.jpg)
+
+![👁🐈](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRVp37aAkM3iW5Lr-hOHLYTTYcOyJRvHTq6__Kq_zrX&s)
 
