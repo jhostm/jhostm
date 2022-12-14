@@ -1,6 +1,6 @@
 ## eaemanodboa ☔
 
-Olá meu nome é José'-' e sou apenas um estudante '-'
+__Olá__ meu _nome_ é **José**'-' e sou apenas um *estudante* '-'
 
 Aqui está um pouco sobre minha vida :
 - 🔭 estagiando...
@@ -11,4 +11,6 @@ Aqui está um pouco sobre minha vida :
 - 📫 vem ver o poder de fogo
 - 😄 oi tem a 660, R1 e varias hornet
 - ⚡ de 762 e mochila da Redley
-🛴
+🐊 [whats is this melody😱](https://www.youtube.com/watch?v=rIkDNCIz6as)
+![👁🐈](zoi de gato.jpg)
+
