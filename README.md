@@ -1,5 +1,5 @@
-### 🚀
-eaemanodboa ☔
+## eaemanodboa ☔
+
 Olá meu nome é José'-' e sou apenas um estudante '-'
 
 Aqui está um pouco sobre minha vida :
