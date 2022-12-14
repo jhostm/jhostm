@@ -1,17 +1,14 @@
-### Hi there 👋
+### 🚀
+eaemanodboa ☔
+Olá meu nome é José'-' e sou apenas um estudante '-'
 
-Olá meu nome é José e sou apenas um estudante '-'
-<!--
-**jhostm/jhostm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Aqui está um pouco sobre minha vida :
+- 🔭 estagiando...
+- 🌱 learning git
+- 👯 oi é a fabrica de bico 
+- 🤔 arsenal de fuzil novo
+- 💬 se tu nao acredita
+- 📫 vem ver o poder de fogo
+- 😄 oi tem a 660, R1 e varias hornet
+- ⚡ de 762 e mochila da Redley
+🛴
