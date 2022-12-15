@@ -14,5 +14,5 @@ Aqui está um pouco sobre minha vida :
 
 🐊 [whats is this melody😱](https://www.youtube.com/watch?v=rIkDNCIz6as)
 
-![👁🐈](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRVp37aAkM3iW5Lr-hOHLYTTYcOyJRvHTq6__Kq_zrX&s)
+![zoi de gato](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRVp37aAkM3iW5Lr-hOHLYTTYcOyJRvHTq6__Kq_zrX&s)
 
