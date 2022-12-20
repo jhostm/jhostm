@@ -4,7 +4,7 @@ __Olá__ meu _nome_ é **José**'-' e sou apenas um *estudante* '-'
 
 Aqui está um pouco sobre minha vida :
 - 🔭 estagiando...
-- 🌱 learning git
+- 🌱 learning git/github
 - 👯 oi é a fabrica de bico 
 - 🤔 arsenal de fuzil novo
 - 💬 se tu nao acredita
