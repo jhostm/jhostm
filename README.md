@@ -3,6 +3,7 @@
 __Olá__ meu _nome_ é **José**'-' e sou apenas um *estudante* '-'
 
 Aqui está um pouco sobre minha vida :
+- 🎼 gosto de playboy carti🧛🏿‍♂️ e kendrick lamar🙅🏿‍♂️
 - 🔭 estagiando...
 - 🌱 learning git/github
 - 👯 oi é a fabrica de bico 
