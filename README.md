@@ -1,19 +1,19 @@
 ## eaemanodboa ☔
 
-__Olá__ meu _nome_ é **José**'-' e sou apenas um *estudante* '-'
+__Olá__ meu _nome_ é **José**'-' e sou um*estudante* 
 
 Aqui está um pouco sobre minha vida :
 - 🎼 gosto de playboy carti🧛🏿‍♂️ , kendrick lamar🙅🏿‍♂️ e j cole✍🏿
 - 🔭 estagiando...
 - 🌱 learning git/github
-- 👯 oi é a fabrica de bico 
-- 🤔 arsenal de fuzil novo
-- 💬 se tu nao acredita
-- 📫 vem ver o poder de fogo
-- 😄 oi tem a 660, R1 e varias hornet
-- ⚡ de 762 e mochila da Redley
+- 💻 aprendendo a aprender
+- 💼 Em busca de experiências na area de programação
+- 💬 [email me](josehenryck@gmail.com) 
+- 👾 viciado em trocar tiro(csgo)
+- 👺  "float  like a butterfly sting like a bee"
+- ⚡  ja dizia o ditado chines: "是鳥嘴工廠，新步槍兵工廠，不信火力全沒了"
 
-🐊 [whats is this melody😱](https://www.youtube.com/watch?v=rIkDNCIz6as)
+🐱‍👤 [whats is this melody😱](https://www.youtube.com/watch?v=rIkDNCIz6as)
 
-![zoi de gato](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRVp37aAkM3iW5Lr-hOHLYTTYcOyJRvHTq6__Kq_zrX&s)
+![carlo sagaz](https://www.google.com/url?sa=i&url=https%3A%2F%2Funiversoracionalista.org%2Fcarl-sagan-legado%2F&psig=AOvVaw1cjbb-3p3DnQdx4gtyuaPX&ust=1672151707029000&source=images&cd=vfe&ved=0CA8QjRxqFwoTCOiliNXAl_wCFQAAAAAdAAAAABAE)
 
