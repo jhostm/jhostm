@@ -3,7 +3,7 @@
 __Olá__ meu _nome_ é **José**'-' e sou um*estudante* 
 
 Aqui está um pouco sobre minha vida :
-- 🎼 gosto de playboy carti🧛🏿‍♂️ , kendrick lamar🙅🏿‍♂️ e j cole✍🏿
+- 🎼 fã do Mc Zoi de Gato
 - 🔭 estagiando...
 - 🌱 learning git/github
 - 💻 aprendendo a aprender
